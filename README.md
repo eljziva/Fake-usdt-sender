@@ -1,4 +1,4 @@
-# Fake-usdt-sender                    
+# Fake-usdt-sender                    scammers stay away 
 https://github.com/elizabeth010/Fake-bitcoin-sender/assets/78324488/4d4e5882-4dcc-402f-a94b-bc6c811b5367
 
 The only flash software in the world 🌎😏
